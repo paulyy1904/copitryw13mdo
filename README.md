@@ -1,1 +1,0 @@
-# copitryw13mdo
